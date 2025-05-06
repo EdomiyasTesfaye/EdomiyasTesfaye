@@ -6,6 +6,6 @@
 
 🌟 I'm passionate about open-source contributions and continuous learning, actively engaging with the developer community through blog posts, workshops, and collaborative projects. My goal is to leverage technology to solve real-world challenges and deliver impactful solutions.
 
-📫 Let's connect and explore how we can collaborate on innovative projects. Feel free to reach out via email at [Your Email] or connect with me on LinkedIn [Your LinkedIn Profile], where I share insights on tech trends and industry best practices.
+📫 Let's connect and explore how we can collaborate on innovative projects. Feel free to reach out via email at edomiyastesfaye321@gmail.com  or connect with me on LinkedIn @edomiyaszelleke, where I share insights on tech trends and industry best practices.
 
 Feel free to customize this description with your specific details, such as your name, email address, and LinkedIn profile link, to make it your own. This will give potential collaborators or employers a clear snapshot of your skills and expertise.
